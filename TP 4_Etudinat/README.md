@@ -1,0 +1,1 @@
+lien du vidéo de simulation:https://drive.google.com/file/d/11QcFvGttOkt6jwl9cFT87skcPVbDcFsw/view?usp=sharing
